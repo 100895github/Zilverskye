@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Zilverskye
+- 👀 I’m interested in a lott of things, mostly fnac and The Last of Us!
+- 🌱 I’m currently following an course to learn code!
+- 🌿 I'm mostly trying to search things for my codes, or to try to make friends
